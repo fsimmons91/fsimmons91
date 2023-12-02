@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hi I'm Finn!
+My pronouns are they/he
+I'm currently working on becoming a software developer!
+I have a cat named Haru who likes tooooooooooooiiiiiiihhhddd ...step on the keyboard
+Fun fact: I draw blood for a living
